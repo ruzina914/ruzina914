@@ -1,6 +1,6 @@
 ![Web Developer](https://pbs.twimg.com/profile_banners/1724977285437300736/1700102403/600x200)
 
-### Hi there 👋, I am Ruzina Akter
+### Hi , I am Ruzina Akter
 #### Web Developer
 
 
